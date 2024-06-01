@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @shan2564
-- 👀 I’m interested in Developing project.
+- 👀 I’m interested in Developing projects.
